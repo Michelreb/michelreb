@@ -7,4 +7,4 @@ ola pessoas⭐
 - programo na godot
 - e gosto de qualquer coisa de terror☠️
 
-  !{}(https://media.tenor.com/enYuamE9_bwAAAAi/teto-boing.gif)
+  ![](https://media.tenor.com/enYuamE9_bwAAAAi/teto-boing.gif)
